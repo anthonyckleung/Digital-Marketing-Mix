@@ -1,4 +1,4 @@
-# Digital Marketing Mix Modelling: Which Channels to Invest?
+# Digital Marketing Mix Modelling: Which Channels to Spend?
 
 ## Overview
 
